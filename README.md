@@ -1,0 +1,2 @@
+# homework-help
+Consistency and teach are a center to anything in this world. You as a parent need to build up a set time for when the homework is to be done and where. Since a routine must be set up, time and place must be a similar all an opportunity to have this consistency. In due time the kid will become acclimated to this and each time that the youngster sits in that specific place the kid will realize that the time has come to do the investigation and homework. Over some undefined time frame this will set an investigation propensity for secondary school.
